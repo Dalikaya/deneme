@@ -8,3 +8,8 @@
 3.adım
 
 4adım
+
+4.et
+
+
+ne zaman y
