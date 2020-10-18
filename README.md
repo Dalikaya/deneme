@@ -8,3 +8,8 @@ asdasd
 selam
 
 merhaba
+
+
+nasılsınız
+
+merhabalar
