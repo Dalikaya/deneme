@@ -1,10 +1,3 @@
 # deneme
 
 
-Merhaba
-
-
-selam
-
-
-nasılsız
